@@ -1,1 +1,5 @@
-# ordliste
+Jesus
+Gud
+Satan
+Sky
+Baby
